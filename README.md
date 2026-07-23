@@ -1,3 +1,4 @@
+<img width="1080" height="765" alt="IMAGE 2026-07-23 15:50:15" src="https://github.com/user-attachments/assets/ad555da0-efbd-4295-b0b6-277ecc7594cf" />
 
 ### Hi there 👋, I'm Ulug'bek Boltayev
 
